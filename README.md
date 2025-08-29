@@ -1,6 +1,6 @@
 # André Santana
 
-**Enterprise Pre-Sales & Solutions Engineering | Customer Experience (CX) | AI & Data-Driven Transformation**
+Enterprise Pre-Sales & Solutions Engineering | Customer Experience (CX) | AI & Data-Driven Transformation
 
 ## 💼 Professional Summary
 Solutions Engineer with over 20 years of experience in **Information Technology**, specializing in **Customer Experience (CX)**, **Digital Transformation**, and **Enterprise Architecture**. Proven record in **team leadership, scalable solution design, pre-sales consulting, and enterprise innovation**. Recognized with multiple awards for performance and delivery in large-scale global projects.  
